@@ -1,4 +1,4 @@
 - Hi, I’m @Nicknack0384
 - I’m interested in making games & projects (projects meaning renders, textures, & models)
 - I’m looking to collaborate on Coding, Blender, and ZBrush
-- How to reach me: Discord; Nicknack0384#0999
+- How to reach me: Discord; nicknack0384
